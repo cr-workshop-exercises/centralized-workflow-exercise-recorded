@@ -1,0 +1,4 @@
+One feature I use a lot is git commit -v
+
+this shows me the difference I am about to commit
+in the commit log editor
