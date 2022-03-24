@@ -1,0 +1,3 @@
+- GIT
+	- Merging
+		- Merge a child branch to main branch
