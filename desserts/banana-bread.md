@@ -14,12 +14,12 @@
 - 3 ripe bananas (as ripe and dark as possible)
 - 2 large eggs
 - 60g butter
-- 60g turkish yogurt
+- 60g Turkish yogurt
 
 ## Instructions
 
 - Mix dry ingredients
-- Mash room temperature butter, turkish yogurt and bananas together.
+- Mash room temperature butter, Turkish yogurt and bananas together.
 - Add eggs to banana butter mix. Mix until no streaks of yellow are visible
 - Add dry ingredients to mixture.
 - Pour into a buttered bread pan.
