@@ -2,7 +2,8 @@
 
 ## Ingredients
 - one onion, chopped
-- two pieces of garlic, chopped
+- two garlic cloves, chopped
+
 - five tomatoes, cubed
 - one big carrot, cubed
 - 70 grams of tomato puree
