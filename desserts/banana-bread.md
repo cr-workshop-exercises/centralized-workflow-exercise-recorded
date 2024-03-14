@@ -10,9 +10,10 @@
 - 0,5 teaspoon of salt
 - 1 teaspoon of baking soda
 - 2,5dl dried mixed fruit
+- 1,5dl chocolate chips
 
 ### Wet
-- 3 ripe bananas (as ripe and dark as possible)
+- 3 ripe bananazz (as ripe and dark as possible)
 - 2 large eggs
 - 60g butter
 - 60g turkish yogurt
@@ -24,6 +25,5 @@
 - Add eggs to banana butter mix. Mix until no streaks of yellow are visible
 - Add dry ingredients to mixture.
 - Pour into a buttered bread pan
-- Bake for 45-55 min at 175 C.
 - Test with a chopstip: Insert chopstick, if batter does not stick to chopstick, banana bread is ready.
 - Enjoy!
