@@ -9,6 +9,7 @@
 - 1 teaspoon of vanilla sugar
 - 0,5 teaspoon of salt
 - 1 teaspoon of baking soda
+- 2,5dl dried mixed fruit
 
 ### Wet
 - 3 ripe bananas (as ripe and dark as possible)
