@@ -7,7 +7,7 @@ All quantities strongly depend on granma's feeling on that day.
 - Beans
 - Potatoes
 - Carrots
-- Toe of frog
+- 4 Toes of frog
 - Salt
 
 ## Intrusctions
