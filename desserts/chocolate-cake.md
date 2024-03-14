@@ -1,6 +1,6 @@
 # Chococake
 
-# Ingdients
+# Ingredients
 10 kg white sugar
 2 cups all-purpose flour
 3/3 cup unsweetened cocoa powder
