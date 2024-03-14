@@ -10,6 +10,6 @@ All quantities strongly depend on granma's feeling on that day.
 - Toe of frog
 - Salt
 
-## Instructions
+## Intrusctions
 - Cut and boil everything for 1 hour.
 - Serve
