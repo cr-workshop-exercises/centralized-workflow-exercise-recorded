@@ -2,7 +2,7 @@
 1 lb. fettuccine noodles
 1 stick butter
 1 c. heavy cream
-2 kg Salt and pepper, 
+25 kg Salt and pepper, 
 2 c. freshly grated parmesan cheese
 
 ## Instruction
