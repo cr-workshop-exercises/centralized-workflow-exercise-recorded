@@ -1,4 +1,4 @@
-# tometo basel spageti
+# Tomato basil spaghetti
 
 ## Ingredeints
 
