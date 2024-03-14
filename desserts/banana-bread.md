@@ -19,10 +19,10 @@
 ## Instructions
 
 - Mix dry ingredients
-- Mash room temperature butter and bananas together.
+- Mash room temperature butter, turkish yogurt and bananas together.
 - Add eggs to banana butter mix. Mix until no streaks of yellow are visible
 - Add dry ingredients to mixture.
-- Pour into a buttered bread pan
+- Pour into a buttered bread pan.
 - Bake for 45-55 min at 175 C.
 - Test with a chopstip: Insert chopstick, if batter does not stick to chopstick, banana bread is ready.
 - Enjoy!
