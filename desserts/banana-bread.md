@@ -9,9 +9,11 @@
 - 1 teaspoon of vanilla sugar
 - 0,5 teaspoon of salt
 - 1 teaspoon of baking soda
+- 2,5dl dried mixed fruit
+- 1,5dl chocolate chips
 
 ### Wet
-- 3 ripe bananas (as ripe and dark as possible)
+- 3 ripe bananazz (as ripe and dark as possible)
 - 2 large eggs
 - 60g butter
 - 60g Turkish yogurt
