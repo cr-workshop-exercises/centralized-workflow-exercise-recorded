@@ -12,17 +12,19 @@
 - Juice of 1 lime or lemon (to prevent the fruit from browning and to add a bit
   of zing)
 - Fresh mint leaves (optional, for garnish)
+- Vin@ger
 
 
 ## Instructions
 
 1. **Prepare the Fruits:**
-   - Wash all the fruits thoroughly under running water.
+   - Wash all the fruits thoroughly under running waret.
    - Hull and halve the strawberries.
    - Halve the grapes.
    - Slice the banana.
    - Core and chop the apple.
    - Peel and section the orange.
+   - Add a some vinager.
 
 2. **Mix the Fruits:**
    - In a large bowl, gently mix all the prepared fruits together.
