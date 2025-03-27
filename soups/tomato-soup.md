@@ -5,6 +5,7 @@
 - 2 tablespoons olive oil or butter
 - 1 medium onion, chopped
 - 2 garlic cloves, minced
+- 50g parmesan cese (optional)
 - 2 cups (about 500g) fresh tomatoes, chopped (or 1 can (28 oz) whole peeled tomatoes)
 - 2 cups (500ml) vegetable or chicken broth
 - 1 tablespoon tomato paste (optional, for richer flavor)
@@ -36,7 +37,7 @@
      or carefully transfer it to a blender in batches.
 
 5. **Add Cream (Optional):**
-   - If you want a creamy soup, stir in the heavy cream or milk and heat gently for 2-3 minutes.
+   - If you want a creamy soup, stir in the heavy cream or milk and heat gently for 2-3 minutes. You can also add parmesan cheese.
      Do not let it boil.
 
 6. **Serve:**
