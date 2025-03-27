@@ -15,7 +15,7 @@
 
 ## Instructions
 
-1: Add plenty of salt into the boiling water
+1: Don't put any salt into the boiling water
 2: Put spagetti in the boling water
 3: Pan fry the guanciale or pancetta
 4: Remove excessive fat from the frying pan
