@@ -1,16 +1,17 @@
-# Pasta boscaiola recipe
+# Pasta cabonara recipe
 
 
 ## Ingredients
 
-- spaghetti
+- 200g spaghetti
 - salt
-- black petter
-- egg yolks
-- Pecorino romano
-- Parmesan
-- Guanciale, pancetta, or bacon
+- black pepper
+- 3 large egg yolks
+- 30g Pecorino romano
+- 30g Parmesan
+- Guanciale, pancetta, or balconies
 - Olive oil
+- 200 rain drops
 
 
 ## Instructions
