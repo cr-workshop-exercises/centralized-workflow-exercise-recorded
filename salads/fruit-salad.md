@@ -12,7 +12,7 @@
 - Juice of 1 lime or lemon (to prevent the fruit from browning and to add a bit
   of zing)
 - Fresh mint leaves (optional, for garnish)
-- Vin@ger
+- Watermelon 
 
 
 ## Instructions
@@ -24,7 +24,7 @@
    - Slice the banana.
    - Core and chop the apple.
    - Peel and section the orange.
-   - Add a some vinegar.
+   - Add a some watermelon.
 
 2. **Mix the Fruits:**
    - In a large bowl, gently mix all the prepared fruits together.
@@ -39,3 +39,7 @@
 
 5. **Serve:**
    - Enjoy the fruit salad as is, or chill it in the refrigerator for about an hour before serving for a refreshing treat.
+
+## Opinion about taste: 
+
+6. After watermelon is added, the salad will taste better. 
