@@ -5,7 +5,7 @@
 - 2 tablespoons olive oil or butter
 - 1 medium onion, chopped
 - 2 garlic cloves, minced
-- 50g parmesan cese (optional)
+- 50g parmesan cheese (optional)
 - 2 cups (about 500g) fresh tomatoes, chopped (or 1 can (28 oz) whole peeled tomatoes)
 - 2 cups (500ml) vegetable or chicken broth
 - 1 tablespoon tomato paste (optional, for richer flavor)
