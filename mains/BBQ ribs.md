@@ -1,4 +1,4 @@
-# Vegetarian lasagna recipe
+# BBQ Ribs recipe
 
 
 ## Ingredients
