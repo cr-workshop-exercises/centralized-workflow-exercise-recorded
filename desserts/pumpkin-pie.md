@@ -19,7 +19,7 @@
 - 2 tsp cinnamon
 - 1 tsp ginger, ground or juice
 - 0.5 tsp ground cloves
-- 0 eggs
+- (good replacement here needed for eggs)
 
 
 ## Instructions
