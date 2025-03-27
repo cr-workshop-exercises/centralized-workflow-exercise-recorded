@@ -24,7 +24,7 @@
    - Slice the banana.
    - Core and chop the apple.
    - Peel and section the orange.
-   - Add a some vinager.
+   - Add a some vinegar.
 
 2. **Mix the Fruits:**
    - In a large bowl, gently mix all the prepared fruits together.
