@@ -21,4 +21,4 @@
 - Remove excessive fat from the frying pan
 - Mix pre-cut guanciale, egg yorks, cheeses in the bowl.
 - Put pasta into this boal and mix.
-- Put some black petter and additional cheese on top if you like
+- Put some black pepper and additional cheese on top if you like
