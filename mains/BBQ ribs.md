@@ -15,7 +15,7 @@
 ## Instructions
 
 1. **for the slather:**
-   - Krate Ginger
+   - Grate Ginger
    - mix smoked paprika, salt & pepper
    - add crushed garlic
    - mix with dry sherry and sugar
