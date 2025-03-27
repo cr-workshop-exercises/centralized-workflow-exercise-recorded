@@ -25,6 +25,6 @@
    - let marinate min. 2hrs
 
 3. **smoke:**
-   - preheat smoker to 195000000000000F
+   - preheat smoker to 195F
    - smoke ribs for min. 5 hrs
    - apply slather every 30 min
