@@ -17,6 +17,7 @@
   - Salt and pepper to taste
 
 ## Instructions
+Follow these instructions carefully
 
 ### Pastry
 1. **Prepare the pastry:** In a large bowl, combine the flour and salt. Add the cold butter and use a pastry cutter or your fingers to work the butter into the flour until the mixture resembles coarse crumbs.
