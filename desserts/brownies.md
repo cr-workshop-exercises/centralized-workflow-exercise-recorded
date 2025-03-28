@@ -25,7 +25,7 @@
 
 ## Instructions
 
-- Preheat the oven to 300°C.
+- Preheat the oven to 190°C.
 - In a mixing bowl, combine: wheat flour, cocoa powder, baking powder, brown sugar, sugar, Bourbon vanilla sugar, salt, eggs, cooking oil and heavy cream. 
 - Using a hand mixer, first mix on the lowest speed, then on the highest speed for about 1 minute, until smooth.
 - Fold in the walnut halves and the chopped chocolate.
