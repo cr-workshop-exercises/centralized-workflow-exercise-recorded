@@ -1,4 +1,4 @@
-# Vegetarian lasagna recipe
+# BBQ Ribs recipe
 
 
 ## Ingredients
@@ -14,17 +14,17 @@
 
 ## Instructions
 
-1. **for the rub:**
+1. **for the slather:**
    - Grate Ginger
    - mix smoked paprika, salt & pepper
    - add crushed garlic
    - mix with dry sherry and sugar
 
 2. **marinate:**
-   - apply rub to ribs
+   - apply slather to ribs
    - let marinate min. 2hrs
 
 3. **smoke:**
    - preheat smoker to 195F
    - smoke ribs for min. 5 hrs
-   - apply rub every 30 min
+   - apply slather every 30 min
