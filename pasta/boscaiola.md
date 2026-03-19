@@ -14,6 +14,6 @@
 
 - Boil the rigatoni
 - Boil the pea
-- Boil the mushrooms
+- Fry the mushrooms and the pancetta
 - Put them on a plate
 - Put some dressing on it
