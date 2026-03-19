@@ -7,7 +7,7 @@
 - 2 cups granulated sugar
 - 3/4 cup unsweetened cocoa powder
 - 2 teaspoons baking powder
-- 1 1/2 teaspoons baking soda
+- 1 1/2 teaspoons baking powder
 - 1 teaspoon salt
 - 1 cup whole milk
 - 1/2 cup vegetable oil (Note: *not olive oil*)
