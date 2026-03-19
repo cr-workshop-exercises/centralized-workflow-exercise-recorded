@@ -10,7 +10,7 @@
 - 1 1/2 teaspoons baking soda
 - 1 teaspoon salt
 - 1 cup whole milk
-- 1/2 cup vegetable oil
+- 1/2 cup vegetable oil (Note: *not olive oil*)
 - 2 large eggs
 - 2 teaspoons vanilla extract
 - 1 cup boiling water
