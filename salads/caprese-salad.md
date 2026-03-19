@@ -4,13 +4,14 @@
 ## Ingredients
 
 - 4 large ripe tomatoes, sliced into 1/4-inch rounds
-- 1 pound fresh mozzarella cheese, sliced into 1/4-inch rounds
+- 1 pound fresh mozzarella cheese, sliced into 1/4-inch rounds or marinated tofu
 - 1/2 cup fresh basil leaves
 - 3 tablespoons extra-virgin olive oil
 - 1 tablespoon balsamic vinegar (optional)
 - Salt and freshly ground black pepper, to taste
 
 
+this is a mistake 
 ## Instructions
 
 1. **Prepare the Tomatoes and Mozzarella:**
