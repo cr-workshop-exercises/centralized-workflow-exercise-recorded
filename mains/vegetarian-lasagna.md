@@ -5,10 +5,10 @@
 
 - **9-12** no-boil lasagna noodles
 - **1** large jar (about 24 oz) of marinara sauce
-- **15 oz** ricotta cheese
+- **15 oz** ricotta cheese or vegan cream cheese
 - **1** egg
-- **1/2 cup** grated Parmesan cheese
-- **2 cups** shredded mozzarella cheese
+- **1/2 cup** grated Parmesan cheese or nutritional yeast
+- **2 cups** shredded mozzarella cheese or vegan cheese alternative
 - **1 lb** fresh spinach, rinsed and chopped (or use frozen spinach, thawed and drained)
 - **1** medium zucchini, thinly sliced
 - **1** bell pepper, diced
@@ -33,14 +33,14 @@
    - Remove from heat and set aside.
 
 3. **Mix Cheeses:**
-   - In a bowl, mix together the ricotta cheese, egg, half of the grated Parmesan cheese, and a pinch of salt and pepper. Set aside.
+   - In a bowl, mix together the ricotta cheese (vegan cream cheese), egg (omit if vegan), half of the grated Parmesan cheese (Nutritional yeast), and a pinch of salt and pepper. Set aside.
 
 4. **Assemble Lasagna:**
    - Spread a thin layer of marinara sauce over the bottom of the baking dish.
    - Place a layer of lasagna noodles over the sauce.
    - Spread half of the ricotta mixture over the noodles.
    - Add half of the sautéed vegetables over the ricotta layer.
-   - Sprinkle a layer of mozzarella cheese.
+   - Sprinkle a layer of mozzarella cheese (vegan cheese alternative).
    - Repeat the layers: sauce, noodles, ricotta mixture, vegetables, and mozzarella cheese.
    - Top with a final layer of noodles, the remaining sauce, and sprinkle the rest of the Parmesan and mozzarella cheeses.
 
