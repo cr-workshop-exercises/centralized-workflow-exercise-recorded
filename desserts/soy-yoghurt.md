@@ -24,4 +24,4 @@
 4. **Notes**
    - It is important to use soy milk, that does not contain any additives like gum or stabilizers.
    - The yoghurt will not be super thick, more like a joghurt drink.
-   - Experiment with sweeteners and other flavours, e.g. vanilla
+   - Experiment with sweeteners and other flavours, e.g. vanilla or cinnamon
