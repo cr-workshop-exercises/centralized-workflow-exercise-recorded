@@ -3,7 +3,7 @@
 
 ## Ingredients
 
-- rigatoni
+- 500 g rigatoni
 - pancetta
 - peas
 - mushrooms
