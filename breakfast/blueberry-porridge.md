@@ -7,4 +7,10 @@
 - drizzle of honey, optional
 
 ## Instructions
-- To be added
+- Put the oats in a bowl
+- Pour the milk on top
+- Put the bowl in the microwave @600 Watts for 2-2.5 minutes
+- Mix in the cinnamon and honey
+- Add the blueberries on top
+
+Hope you enjoy!
