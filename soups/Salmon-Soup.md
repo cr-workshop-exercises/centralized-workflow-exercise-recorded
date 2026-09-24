@@ -2,14 +2,22 @@
 
 **Ingredients**
 
--500 g white fish fillets (salmon preferred) 
--4 potatoes, peeled and diced 
+-500 g white fish fillets (salmon preferred)
+
+-4 potatoes, peeled and diced
+ 
 -1 onion, finely chopped 
+
 -1 carrot, sliced 
+
 -1 litre fish or vegetable stock 
+
 -200 ml cream 
+
 -1 tbsp butter Salt 
+
 -Black pepper 
+
 -Fresh dill, chopped
 
 **Instructions**
