@@ -6,18 +6,25 @@
 - **4 cups** mixed greens (such as arugula, spinach, and romaine)
 - **1/2 cup** cherry tomatoes, halved
 - **1/4 cup** sliced cucumbers
-- **14 cup** shredded carrots
+- **1/4 cup** shredded carrots
 - **1/4 cup** toasted nuts (almonds, walnuts, or pecans), optional
 - **1/4 cup** crumbled feta or goat cheese, optional
 
 
-## For the lemon vinaigrette
+## Dressing option 1: lemon vinaigrette
 
 - **1/4 cup** extra virgin olive oil
 - **2 tablespoons** fresh lemon juice
 - **1 teaspoon** honey or maple syrup (adjust to taste)
 - **1 small clove** garlic, minced
 - **Salt and pepper** to taste
+
+## Dressing option 2: honey vinaigrette
+- **1/2 cup** extra virgin olive oil
+- **14 cup** honey
+- **14 cup** apple cider vinegar
+- **Salt** to taste, medium grain
+- **Pepper** to taste, freshly ground
 
 
 ## Instructions
@@ -26,6 +33,7 @@
    - In a small bowl, whisk together the olive oil, lemon juice, honey (or
      maple syrup), minced garlic, salt, and pepper until well combined. Set
      aside.
+   - TBA: instructions for honey vinaigretteeeeee
 
 2. **Assemble the Salad:**
    - In a large bowl, combine the mixed greens, cherry tomatoes, sliced cucumbers, and shredded carrots.
