@@ -10,4 +10,8 @@
 - Salt and pepper to taste
 
 ## Instructions
+1. Melt butter
+2. Mix melted butter, garlic, honey, lemon juice and seasonings together
+3. Spread the glaze on the salmon fillets evenly
+4. Cook in an oven 
 
