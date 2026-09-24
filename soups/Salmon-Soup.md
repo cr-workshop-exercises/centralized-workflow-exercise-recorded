@@ -1,6 +1,6 @@
 #SALMON SOUP FROM LAPLAND
 
-##Ingredients
+## Ingredients
 
 -500 g white fish fillets (salmon preferred)
 
@@ -20,7 +20,7 @@
 
 -Fresh dill, chopped
 
-##Instructions
+## Instructions
 
 Melt the butter in a pot and cook the onion until soft. Add the potatoes, carrot, and stock. 
 Simmer for 15 minutes. 
