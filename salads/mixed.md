@@ -37,3 +37,4 @@
 
 4. **Serve:**
    - Serve the salad immediately, ensuring it's fresh and crisp.
+   - Make the catering perfect; with fine and clean plates
