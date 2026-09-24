@@ -1,0 +1,15 @@
+# Fried Rice Recipe
+
+## Ingredients
+- **3** cloves garlic
+- **2** medium scallions
+- **2** tablespoons vegetable oil
+- **1** cup frozen peas and carrots (do not thaw)
+- **4** cups cold cooked white rice
+- **1** tablespoon soy sauce or tamari
+- **1 1/2** teaspoons kosher salt
+- **3/4** teaspoon ground white pepper
+- **2** large eggs
+- **3/4** teaspoon toasted sesame oil
+
+## Instructions
