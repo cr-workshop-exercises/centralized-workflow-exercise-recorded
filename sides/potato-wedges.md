@@ -7,7 +7,7 @@
 - Salt
 - Other seasoning of your liking
 
-## Steps
+## Instructions
 1. Cut the potatoes to wedges
 2. Put wedges into a bowl
 3. Toss in the oil, salt and other spices, and mix
