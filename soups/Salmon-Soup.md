@@ -12,7 +12,7 @@
 
 -1 litre fish or vegetable stock 
 
--200 ml cream 
+-200-250 ml cream 
 
 -1 tbsp butter Salt 
 
