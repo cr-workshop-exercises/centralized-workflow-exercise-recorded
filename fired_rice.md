@@ -13,3 +13,9 @@
 - **3/4** teaspoon toasted sesame oil
 
 ## Instructions
+- heat the oil to medium heat
+- fry the rice
+- add the garlic
+- after 2 minutes add the frozen goods, continue stirring
+- add egs and stir for 2 more minutes
+- ready to serve
