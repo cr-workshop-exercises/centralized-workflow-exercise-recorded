@@ -1,7 +1,7 @@
 ## Ingredients
 
 Mushroom
-dark soya sauce
+Dark soya sauce
 light soya sauce
 chilly
 onion
