@@ -12,6 +12,7 @@
 - Juice of 1 lime or lemon (to prevent the fruit from browning and to add a bit
   of zing)
 - Fresh mint leaves (optional, for garnish)
+- 1 mango
 
 
 ## Instructions
@@ -23,6 +24,7 @@
    - Slice the banana.
    - Core and chop the apple.
    - Peel and section the orange.
+   - Peel the mango, remove the core, and add
 
 2. **Mix the Fruits:**
    - In a large bowl, gently mix all the prepared fruits together.
