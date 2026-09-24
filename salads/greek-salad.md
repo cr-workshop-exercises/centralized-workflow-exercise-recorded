@@ -4,7 +4,7 @@
 - 2 tomatoes
 - 1 cucumber
 - 1/2 red onion
-1oog feta cheese
+100g feta cheese
 - handful of olives
 - 1 tbsp lemon juice
 - oregano
